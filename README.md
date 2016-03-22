@@ -1,0 +1,2 @@
+# inkaweb
+İNKASOFT BİLGİ İŞLEM
